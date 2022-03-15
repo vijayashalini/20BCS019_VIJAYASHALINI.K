@@ -1,0 +1,2 @@
+# 20BCS019_VIJAYASHALINI.K
+Miniproject 
